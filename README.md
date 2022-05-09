@@ -1,0 +1,13 @@
+# proff-x.github.io
+Just about me...
+
+Here i gonna share some really important thoughts or things that i have done or think is good to share. 
+
+Like one of the thought is competeting with my other thoughts that is may be good to share with you all is....
+
+        Never try to find peace until you die... 
+        
+        idk how you understand it or how you relate it with yourself but really, if you are trying to find peace in your adult time you wouldn't do
+        things that you really need to go through to understand the beauty of life or chaotic life haha... hope you understand what i'm trying to say....
+        
+        do smile, make others laugh... live before die. :)
